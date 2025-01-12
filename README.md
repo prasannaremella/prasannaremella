@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @prasannaremella
+- 👋 Hi, I’m Prasanna Nageswara Rao Remella
 - 👀 I’m interested in Project Management
 - 🌱 I’m currently learning to be certified in PMP
 - 💞️ I’m looking to collaborate on Projects
